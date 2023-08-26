@@ -19,4 +19,4 @@ At Double fervour we promote unity and togetherness through the cohesion created
 
 ### Contact
 
-You are interested? Check out our [website](https://techexpertacademy.com). If you like what we are doing, [send us](https://www.techexpertacademy.com/#contact-form-main) a link to your GitHub Page and we’ll get back to you soon. Follow us on [LinkedIn](https://de.linkedin.com/company/tech-expert-academy?trk=public_profile_topcard-current-company).
+You are interested? Check out our [website](https://techexpertacademy.com). If you like what we are doing, [send us](https://www.techexpertacademy.com/#contact-form-main) a link to your GitHub Page and we’ll get back to you soon. Follow us on [LinkedIn](https://www.linkedin.com/in/yuri-juma-04905325b)
